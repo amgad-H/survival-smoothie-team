@@ -1,3 +1,3 @@
-2x Bananas
+3x Bananas
 1x SCoop Protein Powder
 A Handful of Blueberries
